@@ -1,2 +1,5 @@
-# dykehot.github.io
-My Homepage for my activities.
+こんにちは
+
+バーチャルユーチュー　バーの
+ングヌ　ム　です
+
